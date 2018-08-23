@@ -1,0 +1,2 @@
+# voyagesjust-paysbaltes
+GitHub Pages
